@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Tracking APP<br>🌱 I’m currently learning JAVa<br>
+🔭 I’m currently working on Tracking APP<br>🌱 I’m currently learning DB<br>
 - **𝒩𝑒𝓋𝑒𝓇 𝓈𝓉𝑜𝓅 𝓁𝑒𝒶𝓇𝓃𝒾𝓃𝑔 𝒷𝑒𝒸𝒶𝓊𝓈𝑒 𝓁𝒾𝒻𝑒 𝓃𝑒𝓋𝑒𝓇 𝓈𝓉𝑜𝓅 𝓉𝑒𝒶𝒸𝒽𝒾𝓃𝑔**
 - **𝙵𝚒𝚗𝚒𝚜𝚑 𝚠𝚑𝚊𝚝 𝚢𝚘𝚞 𝚜𝚝𝚊𝚛𝚝𝚎𝚍**
 
